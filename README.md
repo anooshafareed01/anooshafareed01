@@ -17,4 +17,4 @@ A passionate programmer from Pakistan
 ![Anoosha's GitHub Stats](https://github-readme-stats.vercel.app/api?username=anooshafareed01&show_icons=true&theme=radical)  
 ![Top Languages](https://github-readme-stats.vercel.app/api/top-langs/?username=anooshafareed01&layout=compact&theme=radical)
 
-![Girl Browsing Internet](https://github.com/anooshafareed01/AnooshaFareed/blob/main/wb4u_sfjl_220905.jpg)
+![Girl Browsing Internet](https://github.com/anooshafareed01/anooshafareed01/blob/main/Screenshot%202025-01-14%20013647.png)
